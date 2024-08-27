@@ -1,1 +1,2 @@
 ---.-.. .-  .--..... ....---.-
+<div class="tenor-gif-embed" data-postid="3847961488571889282" data-share-method="host" data-aspect-ratio="1" data-width="100%"><a href="https://tenor.com/view/fnaf-funny-meme-freddy-fazbear-five-nights-at-freddy%27s-gif-3847961488571889282">Fnaf Funny GIF</a>from <a href="https://tenor.com/search/fnaf-gifs">Fnaf GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
